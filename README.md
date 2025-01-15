@@ -2,7 +2,7 @@
 
 Welcome to my blog. This is going to be used as a space where I share my thoughts, ideas, and experiences.
 
-A brief introduction of myself. My name is Liam O'Reilly, I am a recent college graduate who has studied mathematics, computer science (focusing in machine learning), and Mandarin Chinese. I would describe my greatest strengths as my patience, my friends, and my open-mindedness. I have many weaknesses. I enjoy watching movies, following sports, and reading. I support Everton FC, and the relevant NY franchises: Yankees, Knicks, Giants, Rangers.
+A brief introduction. My name is Liam O'Reilly, I am a recent college graduate who has studied mathematics, computer science, and Mandarin Chinese. I would describe my greatest strengths as my patience, my friends, and my open-mindedness. I have many weaknesses. Recently I have been working on a few ML-based projects. I enjoy watching movies, following sports, and reading. I support Everton FC, and the relevant NY franchises: Yankees, Knicks, Giants, Rangers.
 
 The intention of this blog is two-fold. First, I would like to improve my writing skills. Over the past few years I have been studying and working exclusively in tech, and have done very little formal writing. I do not necessarily intend on writing essays here, instead I am going to focus on conveying my thoughts in succinct and expressive ways. This medium will allow me to practice putting my thoughts into words, so if you read this please view it as such.
 
