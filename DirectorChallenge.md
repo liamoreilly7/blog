@@ -4,15 +4,19 @@ Watching Christopher Nolan and Cillian Murphy's Oppenheimer (2023) was one of th
 
 This page will monitor my progress, and contain any thoughts or reviews. I hope to grow as a watcher of film; perhaps even learn about culture and history through international cinema. Tentatively, I am going to alternate between English and Foreign-language directors, and hope to keep it fresh thematically. 
 
-- Akira Kurosawa: Ikiru, Ran, Throne of Blood, Stray Dog
+Prior to this challenge, I had watched 3 of Akira Kurosawa's films: **Rashomon** (1950), **Seven Samurai** (1954), and **High and Low** (1963), all in the first week of July 2024. The brilliant storytelling of **Rashomon**, including its jumps between story and storyteller provided a compelling entry into his work. Out of the three, this film would benefit the most from a rewatch. Watching a new 4k release of **Seven Samurai** that Friday night in the Film Forum was certainly a night to remember, and I was lucky enough to have taken my parents out to dinner in the West Village beforehand. Right off the bat, I was struck by the physicality of the performances in these first two films. The way the actors bounced between crouching and standing, the animated nature of their interactions, and the force with which dialogue and fights were delivered were all immediately noticable. After one viewing, both films' stellar reputations are well-deserved, and are undoubtably worthy of analysis upon rewatch. **High and Low**, too is a wonderful watch. The detective/crime procedural sub-genre is one of my favorites. Over the past year alone, I have loved **Memories of Murder, Se7en, Silence of the Lambs, and The Girl with the Dragon Tattoo**, to name a few. **High and Low** is among the best of this group, and is easily one of the most captivating, thrilling films I have ever seen.
 
-- Billy Wilder: Sunset Boulevard, The Apartment, Double Indemnity, Witness for the Prosecution
+All to say Kurosawa's work is a fitting place to start.
 
-- Ingmar Bergman: The Seventh Seal, Autumn Sonata, Wild Strawberries, Winter Light
+## 1. Akira Kurosawa: Stray Dog, Ikiru, Throne of Blood, Ran
 
-- Stanley Kubrick: The Killing, Paths of Glory, Barry Lyndon, Eyes Wide Shut
+2. Billy Wilder: Sunset Boulevard, The Apartment, Double Indemnity, Witness for the Prosecution
 
-- Satyajit Ray: Panther Panchali, Aparajito, Apur Sansar, The Music Room
+3. Ingmar Bergman: The Seventh Seal, Wild Strawberries, Autumn Sonata, Persona
+
+4. Stanley Kubrick: The Killing, Paths of Glory, Barry Lyndon, Eyes Wide Shut
+
+5. Satyajit Ray: Panther Panchali, Aparajito, Apur Sansar, The Music Room
 
 - Martin Scorsese: After Hours, Mean Streets, The King of Comedy, Casino
 
